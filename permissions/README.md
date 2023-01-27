@@ -1,1 +1,1 @@
-student at African Leadership University
+student at ALU
