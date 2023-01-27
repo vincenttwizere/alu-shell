@@ -1,1 +1,1 @@
-First task of shell permission
+direferent ways of doing hard things
